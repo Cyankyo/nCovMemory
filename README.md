@@ -668,3 +668,7 @@ pdf版本的备份，有日期、标题备查。
 
 #### [Telegram频道：2019肺炎疫情新闻赛博坟场](https://t.me/wuhancensored)
 记录网上曾被消失、篡改的内容。
+
+
+豆瓣帖子记录迷惑行为
+#### [火神山的隐患：铺草皮还是埋地雷？](https://mp.weixin.qq.com/s/B4ZSxRcDJ_pXNLK5kpDG8w)
